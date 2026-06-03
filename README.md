@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @indeus777 or Chepe (nickname for Jose)
 - 👀 I’m interested in fintech, web3, music, cultural events, specialty coffee, art, outdoor biking, venture capital, coding and entrepreneurship.
 - 💞️ I’m looking to collaborate on web3/stablecions/RWA projects.
-- 📫 How to reach me: joseherrarte@gmail.com or social media @indeus777
+- 📫 How to reach me: indeuz@proton.me
 - ⚡ Fun fact: I started playing guitar at 10y/o inspired by Black Sabbath. Now I'm obsessed with Salsa and Latin Music.
 
 <!---
